@@ -4,7 +4,7 @@
  
 ![](https://komarev.com/ghpvc/?username=cutekomakun&color=green&style=plastic&label=⦻‎&abbreviated=true)
 
-<img width="1280" height="50" alt="image" src="https://github.com/user-attachments/assets/8419ed06-5c5f-4a0e-9a5b-cacd4020bd61" />
+<img width="1280" height="30" alt="tumblr_70043e81f52920003a006efe191ce5e4_66414fb0_500" src="https://github.com/user-attachments/assets/caa96011-eda8-4708-86ab-c7cfc620df9c" />
 
 </div>
 <img width="1043" height="588" alt="image" src="https://github.com/user-attachments/assets/d8744360-4b80-403f-86d9-0555dfa25706" />
