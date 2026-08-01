@@ -1,4 +1,4 @@
-# **who am I to really judge him, anyway?**
+# -ˋˏ✄ ┈-┈-┈-┈
 
 <div align="center">
  
@@ -14,16 +14,19 @@
 <div align="center">
 hello! Hi *smiles*
 
-.☘︎ ݁˖ my name is Asta and i am #evil and gay.  Hi i love my friends! if we ever end up talking please tell me if  any bit of my humor and the way i talk is a bother. 
+.𖦏 ݁˖ Hello!  my name is $\color{green}{\text{Asta.}}$ or $\color{green}{\text{Judas.}}$, and i am a VERY big Homicidal Liu & Sully fan.   i love my friends! if we ever end up talking please tell me if  any bit of my humor and the way i talk is a bother. 
 &ensp;
 
-  ╰┈➤ artist, minor , intp , 9w1 ⋆˚꩜｡
+  ╰┈➤ artist, minor , intp , 9w1 . ゛ᨒ↟ 𖠰ˎˊ˗
   
-  ﹕୭ . FANDOMS : twisted wonderland , danganronpa , creepypasta , hetalia , genshin , honkai , identity v , bungo stray dogs , cookie run , dungeon meshi , gachiakuta , enstars , alien stage , check strawpage 4 more
+  ﹕𖤐 . FANDOMS : creepypasta , marble hornets , twisted wonderland , danganronpa , hetalia , genshin , honkai , identity v , bungo stray dogs , OMORI , cookie run , dungeon meshi , gachiakuta , enstars , alien stage , saiki k , ouran , tawog , witch hat atelier , etc: check strawpage 4 more
  
-  ﹕❀ . DNI : basic dni , vivziepop media fans(sorry) , above 19(unless already friends) , overly sensitive people , I think theres more but i cant be bothered to remember, ships: komanami, shinnaga, tenkiyo, oumeno, togafuka, komamiki (stay back if u ship Nagito w/ girls in general im sorry That man fruity as hell)
-  
-thank u for reading!
+  ﹕☣︎ . DNI : basic dni (homophobes, misogynists, racists, proshippers, incest enjoyers, etc...  Especially incest enjoyers.  Fuck those guys in specific) , above 19 , people who force their headcanons/ships onto others, people who hate just to hate , people who say "Larp!" to anyone over tiny things , some "dark humored" individuals that only joke about r@pe & things similar . Even if you tolerate these kinds of things, you'd best not talk to me..  
+&ensp;
+
+. Please keep in mind that, I do not really ship Liu with anyone, but I'm always up to interacting with other people's ships w/ him! ^^  Just as long as its not : Liu x a minor(hes 24.) , Liu x Jeff, Liu x Jane, or Liu x Nina.  ESPECIALLY LIU x JEFF!!!  FUCK THAT SHIP!!!!! I DO NOT SUPPORT INCEST!!! to me, It does not matter if you proship to cope. Just do not interact with me.  the other two are FINE, But i will be avoiding it . ゛ᨒ↟ 𖠰ˎˊ˗
+    
+thank you for reading!
 
 &ensp;
 <img width="200" height="20" alt="image" src="https://github.com/user-attachments/assets/84c653c1-3650-4cf5-a413-2320d837a600" />
