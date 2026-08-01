@@ -31,7 +31,7 @@ hello! Hi *smiles*
   ﹕☣︎ . DNI : basic dni (homophobes, misogynists, racists, proshippers, incest enjoyers, etc...  Especially incest enjoyers.  Fuck those guys in specific) , above 19 , people who force their headcanons/ships onto others, toxic yumeshippers, people who hate just to hate , people who are insensitive and lack basic empathy,  & some "dark humored" individuals that only joke about r@pe, school shootings, & things similar.  Even if you tolerate these kinds of things, you'd best not interact with me   
 &ensp;
 
-. Please keep in mind that, I do not really ship Liu with anyone, but I'm always up to interacting with other people's ships w/ him! ^^  Just as long as its not : Liu x a minor(hes 24.) , Liu x Jeff, Liu x Jane, or Liu x Nina.  ESPECIALLY LIU x JEFF!!!  FUCK THAT SHIP!!!!! I DO NOT SUPPORT INCEST!!! to me, It does not matter if you proship to cope. Just do not interact with me.  the other two are FINE, But i will be avoiding it . ゛ᨒ↟ 𖠰ˎˊ˗
+. Please keep in mind that, I do not really ship Liu with anyone, but I'm always up to interacting with other people's ships w/ him! ^^  Just as long as its not Liu being shipped with: Jeff, Jane, Nina, or any minors.  ESPECIALLY JEFF!!!  FUCK THAT SHIP!!!!! I DO NOT SUPPORT INCEST!!! to me, It does not matter if you proship to cope. Just do not interact with me.  the other two are FINE, But i will be avoiding it . ゛ᨒ↟ 𖠰ˎˊ˗
     
 thank you for reading!
 
