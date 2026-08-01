@@ -1,16 +1,62 @@
-## Hi there 👋
+# **who am I to really judge him, anyway?**
 
-<!--
-**hxmicidalLiu/hxmicidalLiu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align="center">
+ 
+![](https://komarev.com/ghpvc/?username=cutekomakun&color=green&style=plastic&label=⦻‎&abbreviated=true)
 
-Here are some ideas to get you started:
+<img width="1280" height="80" alt="image" src="https://github.com/user-attachments/assets/4e49a5f8-f5a6-4380-9ffe-4317682b10eb" />
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+</div>
+<img width="1043" height="588" alt="image" src="https://github.com/user-attachments/assets/d8744360-4b80-403f-86d9-0555dfa25706" />
+
+<div align="center">
+<img width="2048" height="164" alt="image" src="https://github.com/user-attachments/assets/b5f36745-8cb0-4cd0-ae49-344ee381a2f5" />
+&ensp;
+<div align="center">
+hello! Hi *smiles*
+
+.☘︎ ݁˖ my name is Asta and i am #evil and gay.  Hi i love my friends! if we ever end up talking please tell me if  any bit of my humor and the way i talk is a bother. 
+&ensp;
+
+  ╰┈➤ artist, minor , intp , 9w1 ⋆˚꩜｡
+  
+  ﹕୭ . FANDOMS : twisted wonderland , danganronpa , creepypasta , hetalia , genshin , honkai , identity v , bungo stray dogs , cookie run , dungeon meshi , gachiakuta , enstars , alien stage , check strawpage 4 more
+ 
+  ﹕❀ . DNI : basic dni , vivziepop media fans(sorry) , above 19(unless already friends) , overly sensitive people , I think theres more but i cant be bothered to remember, ships: komanami, shinnaga, tenkiyo, oumeno, togafuka, komamiki (stay back if u ship Nagito w/ girls in general im sorry That man fruity as hell)
+  
+thank u for reading!
+
+&ensp;
+<img width="200" height="20" alt="image" src="https://github.com/user-attachments/assets/fd932841-d51c-40fd-8e38-f12072aa06a5" />
+
+&emsp;
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zf3abdngz5covaptki34xnt2li&cover_image=true&theme=default&show_offline=false&background_color=06080e&interchange=true&profanity=false&hide_remaster=false&bar_color=1e7b29)](https://github.com/kittinan/spotify-github-profile)
+
+&emsp;
+
+<img width="150" height="84" alt="image" src="https://github.com/user-attachments/assets/c08c52a5-9b1f-488d-9535-56d5ef5ab1f3" /><img width="150" height="84" alt="image" src="https://github.com/user-attachments/assets/c73655af-83b1-40a7-a1ce-8e8ad8938573" /><img width="150" height="84" alt="image" src="https://github.com/user-attachments/assets/7027ff20-71ad-4f8e-843c-26d31fc06e79" /><img width="150" height="84" alt="image" src="https://github.com/user-attachments/assets/6259408a-e480-429c-bf9e-3e4d49f575c0" /><img width="150" height="84" alt="image" src="https://github.com/user-attachments/assets/b9d7d64a-f7e3-40f5-b7dd-b704f7d38968" /><img width="150" height="84" alt="image" src="https://github.com/user-attachments/assets/da1e0455-60c7-4020-860a-a636094fbf4e" /><img width="150" height="84" alt="image" src="https://github.com/user-attachments/assets/6bccfdb7-28fc-4d0e-8de0-f68449e7a606" /><img width="150" height="84" alt="image" src="https://github.com/user-attachments/assets/5578a364-3fb2-4ddf-bb90-bb473419b69b" /><img width="150" height="84" alt="image" src="https://github.com/user-attachments/assets/c85c2293-4fe9-49e8-973a-a511beb624ee" /><img width="150" height="84" alt="image" src="https://github.com/user-attachments/assets/762c3d78-855c-4381-a10c-5c6599f134e2" /><img width="150" height="84" alt="image" src="https://github.com/user-attachments/assets/b4257517-7a31-4cf4-8dc2-56e5fcf823c5" /><img width="150" height="84" alt="image" src="https://github.com/user-attachments/assets/0bded137-2f58-44de-9133-3ca146bc7bf5" /><img width="150" height="84" alt="image" src="https://github.com/user-attachments/assets/ef19926a-b16c-4a0a-886b-67cab6b80d5c" /><img width="150" height="84" alt="image" src="https://github.com/user-attachments/assets/ce097bf9-eb97-4d3f-a7c0-519d38ffc739" /><img width="150" height="84" alt="image" src="https://github.com/user-attachments/assets/e3214312-b7b6-4c2d-99a8-39a21fd78079" /><img width="150" height="84" alt="image" src="https://github.com/user-attachments/assets/683767a6-1436-415b-a795-6f20dcc1fe01" /><img width="150" height="84" alt="image" src="https://github.com/user-attachments/assets/9966afc5-a249-4bd2-a039-8c0611973977" /><img width="150" height="84" alt="image" src="https://github.com/user-attachments/assets/caaabf20-c20d-4c9b-b2ac-f4aed49d2264" /><img width="150" height="84" alt="image" src="https://github.com/user-attachments/assets/f0c839dd-34dc-4777-a988-ff641acb3dad" /><img width="150" height="84" alt="image" src="https://github.com/user-attachments/assets/f7edd04b-4759-4e56-8f5e-673daaee27a5" /><img width="150" height="84" alt="image" src="https://github.com/user-attachments/assets/7929b515-9dfd-4274-9c69-3c6d6053fa8d" /><img width="150" height="84" alt="image" src="https://github.com/user-attachments/assets/0d9659e5-52ef-4157-bfe4-31a7775a25e4" /><img width="150" height="84" alt="image" src="https://github.com/user-attachments/assets/fd625c93-33dc-46dc-9964-70f1520033c3" /><img width="150" height="84" alt="tumblr_4efa8baad6e22340092f936a36b30549_2bd401dc_250" src="https://github.com/user-attachments/assets/90e4d3b9-c7a5-4c9f-ac28-bade4de08219" />
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
