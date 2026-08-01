@@ -4,14 +4,13 @@
  
 ![](https://komarev.com/ghpvc/?username=cutekomakun&color=green&style=plastic&label=⦻‎&abbreviated=true)
 
-<img width="1280" height="80" alt="image" src="https://github.com/user-attachments/assets/4e49a5f8-f5a6-4380-9ffe-4317682b10eb" />
+<img width="1280" height="50" alt="image" src="https://github.com/user-attachments/assets/8419ed06-5c5f-4a0e-9a5b-cacd4020bd61" />
 
 </div>
 <img width="1043" height="588" alt="image" src="https://github.com/user-attachments/assets/d8744360-4b80-403f-86d9-0555dfa25706" />
 
 <div align="center">
-<img width="2048" height="164" alt="image" src="https://github.com/user-attachments/assets/b5f36745-8cb0-4cd0-ae49-344ee381a2f5" />
-&ensp;
+<img width="1280" height="30" alt="tumblr_70043e81f52920003a006efe191ce5e4_66414fb0_500" src="https://github.com/user-attachments/assets/5f8d5b61-90fe-4569-a8be-cb5b9334c166" />&ensp;
 <div align="center">
 hello! Hi *smiles*
 
@@ -27,7 +26,8 @@ hello! Hi *smiles*
 thank u for reading!
 
 &ensp;
-<img width="200" height="20" alt="image" src="https://github.com/user-attachments/assets/fd932841-d51c-40fd-8e38-f12072aa06a5" />
+<img width="200" height="20" alt="image" src="https://github.com/user-attachments/assets/84c653c1-3650-4cf5-a413-2320d837a600" />
+
 
 &emsp;
 
