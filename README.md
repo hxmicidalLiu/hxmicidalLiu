@@ -18,10 +18,17 @@ hello! Hi *smiles*
 &ensp;
 
   ╰┈➤ artist, minor , intp , 9w1 . ゛ᨒ↟ 𖠰ˎˊ˗
-  
-  ﹕𖤐 . FANDOMS : creepypasta , marble hornets , twisted wonderland , danganronpa , hetalia , genshin , honkai , identity v , bungo stray dogs , OMORI , cookie run , dungeon meshi , gachiakuta , enstars , alien stage , saiki k , ouran , tawog , witch hat atelier , etc: check strawpage 4 more
  
-  ﹕☣︎ . DNI : basic dni (homophobes, misogynists, racists, proshippers, incest enjoyers, etc...  Especially incest enjoyers.  Fuck those guys in specific) , above 19 , people who force their headcanons/ships onto others, people who hate just to hate , people who say "Larp!" to anyone over tiny things , some "dark humored" individuals that only joke about r@pe & things similar . Even if you tolerate these kinds of things, you'd best not talk to me..  
+  &ensp;
+
+  ﹕𖤐 . INT : CREEPYPASTA FANS!!! (normal ones)  pls.. And anyone who loves Homicidal Liu, SULLY INCLUDED!!  I love sharing the joy that derives from his existence.  
+ &ensp;
+  ╰┈➤ FANDOMS : creepypasta , marble hornets , twisted wonderland , danganronpa , hetalia , genshin , honkai , identity v , bungo stray dogs , OMORI , cookie run , dungeon meshi , gachiakuta , enstars , alien stage , saiki k , ouran , tawog , witch hat atelier , etc: check strawpage 4 more . ゛ᨒ↟ 𖠰ˎˊ˗
+  
+  &ensp;
+
+
+  ﹕☣︎ . DNI : basic dni (homophobes, misogynists, racists, proshippers, incest enjoyers, etc...  Especially incest enjoyers.  Fuck those guys in specific) , above 19 , people who force their headcanons/ships onto others, toxic yumeshippers, people who hate just to hate , people who are insensitive and lack basic empathy,  & some "dark humored" individuals that only joke about r@pe, school shootings, & things similar.  Even if you tolerate these kinds of things, you'd best not interact with me   
 &ensp;
 
 . Please keep in mind that, I do not really ship Liu with anyone, but I'm always up to interacting with other people's ships w/ him! ^^  Just as long as its not : Liu x a minor(hes 24.) , Liu x Jeff, Liu x Jane, or Liu x Nina.  ESPECIALLY LIU x JEFF!!!  FUCK THAT SHIP!!!!! I DO NOT SUPPORT INCEST!!! to me, It does not matter if you proship to cope. Just do not interact with me.  the other two are FINE, But i will be avoiding it . ゛ᨒ↟ 𖠰ˎˊ˗
