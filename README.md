@@ -33,7 +33,7 @@ hello! Hi *smiles*
 
 . Please keep in mind that, I do not really ship Liu with anyone, but I'm always up to interacting with other people's ships w/ him! ^^  Just as long as its not Liu being shipped with: Jeff, Jane, Nina, or any minors.  ESPECIALLY JEFF!!!  FUCK THAT SHIP!!!!! I DO NOT SUPPORT INCEST!!! to me, It does not matter if you proship to cope. Just do not interact with me.  the other two are FINE, But i will be avoiding it . ゛ᨒ↟ 𖠰ˎˊ˗
 
-. I am also increasingly interested in learning about the history of mental hospitals, as well as the history of (Imperialist) Japan. My heart swells as I learn more about them. However, as much as I love these topics, I wish to make it clear that I do NOT want to glorify or glaze any part of these ugly parts of history. ゛ᨒ↟ 𖠰ˎˊ˗
+. I am also increasingly interested in learning about the history of mistreatment in mental hospitals, as well as the history of (Imperialist) Japan. My heart swells as I learn more about them. However, as much as I love these topics, I wish to make it clear that I do NOT want to glorify or glaze any part of these ugly parts of history. I am NOT a weeaboo, and I do not want to be associated with those kinds of people. ゛ᨒ↟ 𖠰ˎˊ˗
     
 thank you for reading!
 
