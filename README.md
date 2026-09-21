@@ -21,7 +21,7 @@ hello! Hi *smiles*
  
   &ensp;
 
-  ﹕𖤐 . INT : CREEPYPASTA FANS!!! (normal ones)  pls.. And anyone who loves Homicidal Liu, SULLY INCLUDED!!  I love sharing the joy that derives from his existence.  
+  ﹕𖤐 . INT : CREEPYPASTA FANS!!! (normal ones)  pls.. And anyone who loves Homicidal Liu, SULLY INCLUDED!!  I love sharing the joy that derives from his existence.
  &ensp;
   ╰┈➤ FANDOMS : creepypasta , marble hornets , twisted wonderland , danganronpa , hetalia , genshin , honkai , identity v , bungo stray dogs , OMORI , cookie run , dungeon meshi , gachiakuta , enstars , alien stage , saiki k , ouran , tawog , witch hat atelier , etc: check strawpage 4 more . ゛ᨒ↟ 𖠰ˎˊ˗
   
@@ -32,6 +32,8 @@ hello! Hi *smiles*
 &ensp;
 
 . Please keep in mind that, I do not really ship Liu with anyone, but I'm always up to interacting with other people's ships w/ him! ^^  Just as long as its not Liu being shipped with: Jeff, Jane, Nina, or any minors.  ESPECIALLY JEFF!!!  FUCK THAT SHIP!!!!! I DO NOT SUPPORT INCEST!!! to me, It does not matter if you proship to cope. Just do not interact with me.  the other two are FINE, But i will be avoiding it . ゛ᨒ↟ 𖠰ˎˊ˗
+
+. I am also increasingly interested in learning about the history of mental hospitals, as well as the history of Imperialist Japan. My heart swells as I learn more about them. However, as much as I love these topics, I wish to make it clear that I do NOT want to glorify or glaze any part of these ugly parts of history. ゛ᨒ↟ 𖠰ˎˊ˗
     
 thank you for reading!
 
